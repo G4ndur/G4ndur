@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @G4ndur
 - Or just Benito/Benni, and im currently learning how to program!
 - So here im just going to upload my progress to have it on all my devices and to have an overview of the things i achieved!
-- If you want/need to contact me, you can reach me on discord @Gandur#7843
+- If you want/need to contact me, you can reach me on discord @Gandur
